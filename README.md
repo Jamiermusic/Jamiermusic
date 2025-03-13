@@ -1,5 +1,5 @@
-Hello!
+Hi, 
 
-My name is Jamie. I'm a tech enthusiast both online and offline.  
+My name is Jamie. 
 
-Passionately passionate about creative work. Both code and music.
+Love creative work (music, code, design, tech) and connecting.
